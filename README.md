@@ -1,0 +1,1 @@
+# componentcomm_shopping
